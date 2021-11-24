@@ -17,3 +17,6 @@ _am actually finishing my software development engineering very soon_.
 or you can reach us to our physical location at kakuma 3 zone 3 block 4
 burundian Market (lokitang primary school) union Academy computer learning
 Center.
+
+![images](https://scontent.fmba5-1.fna.fbcdn.net/v/t39.30808-6/255928068_3110814505804955_5090680127994516605_n.jpg?_nc_cat=100&ccb=1-5&_nc_sid=09cbfe&_nc_eui2=AeFPI82tf9M1CI6Q7smd_0Yx6BpEAaAlCNToGkQBoCUI1JB9uHvrwRxEbQ2A_-FBuoN6edApnZja4f5Yv3O2Rncw&_nc_ohc=QUZqyos1M4QAX_Ce2ZT&_nc_ht=scontent.fmba5-1.fna&oh=5ca8da9b0ea8bc80bdc8d3d61aa9702a&oe=61A33BD6)
+![](https://scontent.fmba5-1.fna.fbcdn.net/v/t1.6435-9/185269506_2968598170026590_3818837274628646469_n.jpg?_nc_cat=111&ccb=1-5&_nc_sid=e3f864&_nc_eui2=AeHG9rwpOZ4BgmslyTr47uMjSA3aWjUs6zZIDdpaNSzrNsbOMp1VgBd5NcGXu6OyUmhXCVF-iwUVr4YW6AQ09AE-&_nc_ohc=jY9dntqTSaAAX-8CXml&_nc_ht=scontent.fmba5-1.fna&oh=90625fc0ce3bbbfbd9d6a43e41193c8f&oe=61C329A4)
